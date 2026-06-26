@@ -14,7 +14,7 @@ mathjax: true
 MRO JUNO iSS [_ECOSTRESS_](https://ecostress.jpl.nasa.gov/gallerylist) [ALt - github.com/kellyrashardiman/kellyrashardiman.github.io](https://github.com/kellyrashardiman/kellyrashardiman.github.io/tree/master) + [homepage alt - kellyrashardiman.github.io](https://kellyrashardiman.github.io/) . . . @ucla hi from [Remote @Nasa-JPL](https://holetoanotheruniverse40.github.io/compiling/) 
 
 
-[https://vsco.co/rashardsartu/gallery](https://vsco.co/rashardsartu/gallery)
+[vsco.co/rashardsartu/gallery](https://vsco.co/rashardsartu/gallery)
 [vsco.co/earthdatarashard/gallery @nasa-openscapes @doug-newman-nasa somone attatced to @blackgirlscode deleted this account @whitehouse `KimBryant`](https://vsco.co/earthdatarashard/gallery)
 
 
