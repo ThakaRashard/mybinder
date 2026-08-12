@@ -17,6 +17,42 @@ MRO JUNO iSS [_ECOSTRESS_](https://ecostress.jpl.nasa.gov/gallerylist) [ALt - gi
 [https://vsco.co/rashardsartu/gallery](https://vsco.co/rashardsartu/gallery)
 [https://vsco.co/earthdatarashard/gallery](https://vsco.co/earthdatarashard/gallery)
 
+
+# Fat Albert and the Cosby Kids
+_The Complete Series_ [Files](https://archive.org/download/fat-albert-72)
+<iframe src="https://archive.org/embed/fat-albert-72" width="560" height="384" frameborder="0" webkitallowfullscreen="true" mozallowfullscreen="true" allowfullscreen></iframe>
+
+_S5.E8_ `Soft Core` [IMDb](https://www.imdb.com/title/tt1993872/)
+_Rudy's friend, Dustin, gives the gang the wrong information on sex education when he gives them pornographic magazines and shows them dirty movies. Rudy's mother intervenes and points the boys in the right direction._
+[Watch - youtu.be/ZtqvJPo4SnU?si=eKEgnlqNTx9oHZgI](https://youtu.be/ZtqvJPo4SnU?si=eKEgnlqNTx9oHZgI) [[1](https://www.youtube.com/watch?v=ptCDQVnpTR0)] r.i.p. [dailymotionfile](https://www.dailymotion.com/video/x7ntrzp) // [metacritic](https://www.metacritic.com/tv/fat-albert-and-the-cosby-kids/season-5/episode-8-soft-core/) @emergingcoders @salesforce @Shopify
+
+### [Felix In Hollywood [1923]]
+[@CityOFLosAngeles archive.org/details/FelixInHollywood1923](https://archive.org/details/FelixInHollywood1923)
+
+[https://svs.gsfc.nasa.gov/30496/](https://svs.gsfc.nasa.gov/30496/)
+
+# Data collected by NASA's Juno spacecraft during its first pass over Jupiter's Great Red Spot in July 2017 indicate that this iconic feature penetrates well below the clouds.
+
+Data collected by NASA's Juno spacecraft during its first pass over Jupiter's Great Red Spot in July 2017 indicate that this iconic feature penetrates well below the clouds. Other revelations from the mission include that Jupiter has two previously uncharted radiation zones. The findings were announced Monday at the annual American Geophysical Union meeting in New Orleans. [https://www.jpl.nasa.gov/news/nasas-juno-probes-the-depths-of-jupiters-great-red-spot/](https://www.jpl.nasa.gov/news/nasas-juno-probes-the-depths-of-jupiters-great-red-spot/) 
+
+![https://d2pn8kiwq2w21t.cloudfront.net/images/imagesjuno201712112andy-home.width-768.gif](https://d2pn8kiwq2w21t.cloudfront.net/images/imagesjuno201712112andy-home.width-768.gif)
+![https://esawebb.org/assets/images/esa-jwst-logo.png](https://esawebb.org/assets/images/esa-jwst-logo.png) 
+
+[esawebb.org/images/jupiter_jetstream1/ @esa](https://esawebb.org/images/jupiter_jetstream1/)
+
+![https://cdn.esawebb.org/archives/images/screen/jupiter-auroras1.jpg](https://cdn.esawebb.org/archives/images/screen/jupiter-auroras1.jpg)
+With giant storms, powerful winds, auroras, and extreme temperature and pressure conditions, Jupiter has a lot going on. Now, the NASA/ESA/CSA James Webb Space Telescope has captured new images of the planet. Webb’s Jupiter observations will give scientists even more clues to Jupiter’s inner life.
+
+This image comes from the observatory’s Near-Infrared Camera (NIRCam), which has three specialized infrared filters that showcase details of the planet. Since infrared light is invisible to the human eye, the light has been mapped onto the visible spectrum. Generally, the longest wavelengths appear redder and the shortest wavelengths are shown as more blue. Scientists collaborated with citizen scientist Judy Schmidt to translate the Webb data into images.
+
+This image was created from a composite of several images from Webb. Visible auroras extend to high altitudes above both the northern and southern poles of Jupiter. The auroras shine in a filter that is mapped to redder colors, which also highlights light reflected from lower clouds and upper hazes. A different filter, mapped to yellows and greens, shows hazes swirling around the northern and southern poles. A third filter, mapped to blues, showcases light that is reflected from a deeper main cloud. The Great Red Spot, a famous storm so big it could swallow Earth, appears white in these views, as do other clouds, because they are reflecting a lot of sunlight.
+
+Credit:
+NASA, ESA, Jupiter ERS Team; image processing by Judy Schmidt
+![https://cdn.esawebb.org/archives/images/screen/jupiter_jetstream1.jpg](https://cdn.esawebb.org/archives/images/screen/jupiter_jetstream1.jpg)
+![https://cdn.esawebb.org/archives/images/screen/weic2419a.jpg](https://cdn.esawebb.org/archives/images/screen/weic2419a.jpg)
+
+
 ## THE HEALTH EFFECTS OF
 # CoNDUCTED ENERGY WEAPONS
 [ @cityoflosangeles KARENBASS - HOLLYMitchell @la-county-isd prisonpolicy.org/scans/council_canadian_academics/The%20Health%20Effects%20of%20Conducted%20Energy%20Weapons.pdf](https://www.prisonpolicy.org/scans/council_canadian_academics/The%20Health%20Effects%20of%20Conducted%20Energy%20Weapons.pdf)
